@@ -12,7 +12,6 @@ Freshman at CUNY Baruch College.
 
 ## Professional Experience
 
-- Independent Calculus Tutor — helped peers and underclassmen master difficult math concepts
 - Tax Preparer — currently in a course on Tax Preparation for NY State, eligible to become a designated tax preparer by the IRS by 2026. (Course link here: https://www.laguardia.edu/ce/career-skills-training/tax-preparer-certificate-program/)
 
 ---
